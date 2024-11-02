@@ -6,8 +6,8 @@
 
 💞️ I’m looking to collaborate on projects that aim to simplify trading for beginners and offer insightful tools for advanced traders.
 
-📫 How to reach me: You can reach me at [your-email@example.com] or connect with me on LinkedIn [LinkedIn profile link].
-
+📫 How to reach me: You can reach me at [antelligencea@gmail.com] or connect with me on LinkedIn [
+https://www.linkedin.com/in/hicham-el-kouache-6b2b892ba?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 😄 Pronouns: He/Him/They
 
 ⚡ Fun fact: The Ant Strategy 🐜 was inspired by the simplicity and effectiveness of ants' teamwork, which helps traders to analyze markets with a fresh perspective and confidence!
